@@ -1,4 +1,4 @@
-#  
+#  Experience ultimate mining tycoon like never before with ultimate mining tycoon Script instant, the #1 Script. Includes god mode and auto-collect for
 
 
 
